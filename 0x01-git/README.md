@@ -1,1 +1,0 @@
-Ahmad Umar Abdulkadir
